@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning computer sciense
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me tbenlakri@gmail.com
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: sport ,learning new things, solve hard problems
 
 
